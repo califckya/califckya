@@ -1,4 +1,5 @@
-## Hi there 👋
+## There is no u in Stanfurd
+[Instagram](https://www.instagram.com/califckya)
 
 <!--
 **califckya/califckya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
